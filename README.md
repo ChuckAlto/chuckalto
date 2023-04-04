@@ -15,7 +15,7 @@ I am looking for a Position where I can contribute, and constantly keep learning
 Please contact me at Chuckalto@gmail.com if you have any questions. I welcome all inquiries.
 
 If you are looking to collaborate-
-I love working as part of a team and am open to collaborate on all different types of projects. from Commercial to non-profit. Even if it just to practice working as a team and sharpening our skills. 
+I love working as part of a team and am open to collaborate on all different types of projects. from Commercial to non-profit. Even if it is just to practice working as a team and sharpening our skills. 
 <!--
 **ChuckAlto/chuckalto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
